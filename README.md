@@ -1,1 +1,0 @@
-# MajorAtrocities.github.io
